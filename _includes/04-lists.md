@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Favorite backpacking trips last year
+  - Half Dome, Yosemite
+  - Rae Lakes Loop, Kings Canyon
+  - Four Lakes Loop, Trinity Alps
+  
