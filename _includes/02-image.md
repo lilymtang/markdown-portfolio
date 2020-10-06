@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Rae Lakes Kings Canyon California](https://images.squarespace-cdn.com/content/v1/58ddd25a15d5db2b31d11726/1565164590663-O0R2TXEIGIOZ4IOLIO0V/ke17ZwdGBToddI8pDm48kEP3XILZbd6clkwwwPPDzGJ7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z5QPOohDIaIeljMHgDF5CVlOqpeNLcJ80NK65_fV7S1USJfBMlwhtiUUFKQ2Qtzx-UONIfB-9RFWha3Hf_VomFI5ck0MD3_q0rY3jFJjjoLbQ/kings-canyon-rae-lakes-loop-lake-campsite-reflection-9754.jpg?format=2500w)
